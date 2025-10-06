@@ -1,2 +1,2 @@
 # WASAY-
-Hi This is my firs website 
+Welcome to the Superior University website — a modern, informative, and inspiring platform designed to showcase the excellence, innovation, and opportunities offered by one of Pakistan’s leading educational institutions. This website serves as a digital gateway to everything that makes Superior University a symbol of quality education, research, and professional growth. It has been thoughtfully created to provide visitors with all the essential information about the university’s programs, campus life, achievements, and vision for the future
